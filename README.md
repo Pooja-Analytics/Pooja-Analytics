@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Pooja-analytics
+# 👋 Hi there,
 
 🎯 Aspiring Data Analyst | MBA in Finance | 9+ years in Investment Banking Operations  
 📍 Based in India | Exploring remote roles in Analytics & Financial Tech.
